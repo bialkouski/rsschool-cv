@@ -48,7 +48,7 @@ yauheni.bialkouski@gmail.com**
 
 ### Education
   Bauman Moscow State Technical University (BMSTU).
-  Also Ш ещщл online PHP courses.
+  Also I study online PHP courses.
   
 
 #### A2 English level
